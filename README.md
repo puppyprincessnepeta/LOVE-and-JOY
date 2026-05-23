@@ -1,2 +1,3 @@
 # LOVE-and-JOY
 𐂯 ₊　˙    𝒜bout 𝘵he 𝓅uppy !
+ <img src="https://files.catbox.moe/vdd2po.webp" class="center">
